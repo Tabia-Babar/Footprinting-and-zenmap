@@ -364,6 +364,7 @@ These activities helped me understand that information gathering is an important
 | Batch | B084C |
 
 ---
+Linkedln: https://lnkd.in/p/dMKD7TzS
 
 **Thank You**
 
